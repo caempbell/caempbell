@@ -1,5 +1,5 @@
  <p align="center">
-<img width="1550" height="570" alt="kkkkkkkkkkkkkkkkkkkkkk" src="https://github.com/user-attachments/assets/f1659db5-d420-427f-b29a-1f3a53e8484b" />
+  <img width="1550" height="570" alt="kkkkkkkkkkkkkkkkkkkkkk" src="https://github.com/user-attachments/assets/0e1db44e-9ebd-41c3-8756-93681f408b04" />
 
 ゛𝑶n𝐞ㅤ𝑚𝑢stㅤh𝑎𝐯𝐞ㅤs𝑜𝒎eㅤam𝐛𝐢𝑡io𝑛ㅤ𝑡oㅤb𝐞ㅤw𝑜𝑟t𝐡yㅤo𝐟ㅤ𝑜𝑛e𝐬e𝑙𝑓ㅤ.ㅤ゛
 
